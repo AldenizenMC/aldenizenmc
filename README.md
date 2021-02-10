@@ -1,2 +1,1 @@
-Discord: https://discord.gg/dVysMJT \n
-Youtube: https://www.youtube.com/channel/UCAFO-ZUyKHzE1QGp4Dk5RkQ
+I make discord bot, i like to code (idk why but i just do)
